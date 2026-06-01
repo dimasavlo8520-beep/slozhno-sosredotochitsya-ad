@@ -1,1 +1,0 @@
-https://github.com/dimasavlo8520-beep/slozhno-sosredotochitsya-ad
